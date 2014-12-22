@@ -32,9 +32,13 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-The crie of the poore for the death of the Right Honourable Earle of Huntington To the tune of the E
+
+1. The crie of the poore for the death of the Right Honourable Earle of Huntington.
+
 #####Back#####
-The crie of the poore for the death of the Right Honourable Earle of Huntington To the tune of the E
+Printed at London for VVilliam Blackvvall,
+and are to be ſold at his shoppe nere
+Guild-Hall gate. 15
 **Types of content**
 
   * There are 82 **verse** lines!
